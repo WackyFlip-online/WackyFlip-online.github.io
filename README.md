@@ -1,7 +1,8 @@
 # Wacky Flip: When fitness meets flipping challenge
 
 Wacky Flip is online. In the game, you can pass the game by continuous fitness exercises. There are various ways to play. You can control your direction to land accurately, so that you can get higher scores and pass levels. The game graphics are also excellent, giving you a very relaxing fitness experience. At the same time, there will be no advertisements in Wacky Flip, and it will be more interesting to play. Players who like it, come and experience Wacky Flip.
-Click here to play    <a href="https://playpharos.com/game/wacky-flip">Wacky Flip</a>
+
+**Click here to play    <a href="https://playpharos.com/game/wacky-flip">Wacky Flip</a>**
 ## Wacky Flip Gameplay
 
 Wacky Flip is a super fun sports game. In Wacky Flip, you need to control your character to flip, accurately grasp the strength and direction, and successfully flip to the designated place in the level, so that you can pass the level to play the task. At the same time, many different levels will be continuously updated in Wacky Flip, and the difficulty of the game is constantly increasing. You can also customize your character's appearance
